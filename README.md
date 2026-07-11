@@ -16,3 +16,4 @@ day 15 gap gap
 day 15 ghup ghup
 day 16 ghap ghap
 day 18 chuppa
+day 19 chusta

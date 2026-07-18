@@ -17,4 +17,5 @@ day 15 ghup ghup
 day 16 ghap ghap
 day 18 chuppa
 day 19 chusta
-day 20 mkc ka birthday
+day 20 meow
+day 21 ghop ghop 

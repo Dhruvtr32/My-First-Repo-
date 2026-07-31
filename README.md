@@ -29,3 +29,4 @@ day 28 ijjlujpjo;
 day 29 night person 
 day 30  a an the concept clear 
 day 31 janwar se insaan bangya nahake 
+day 32 tractor aaj side pe gaya pehli baar 

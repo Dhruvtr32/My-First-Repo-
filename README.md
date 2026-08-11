@@ -36,3 +36,4 @@ day 35 steno pemcil
 day 36 dfhfgfb
 day 37 nedrkfnldlkj
 day 38 hjgfiuylk
+day 39 12 august planets aline meteoroids rai 

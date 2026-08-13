@@ -38,3 +38,4 @@ day 37 nedrkfnldlkj
 day 38 hjgfiuylk
 day 39 12 august planets aline meteoroids rai 
 day 40 bathing 
+day 41 soi soi 

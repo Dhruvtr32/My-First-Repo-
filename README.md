@@ -44,3 +44,4 @@ day 43 dkchdkshnskl
 day 44 btc pump hard 70k
 day 45 liquidation hogya sabka 
 day 46 bappu daru se paagal 
+day 47 mama agaye 
